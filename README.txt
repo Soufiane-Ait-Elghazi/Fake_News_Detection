@@ -1,5 +1,5 @@
 
-************** Membre de Groupe *****************
+************** Membres de Groupe *****************
 
 	AIT HSSAINE MOHAMED
 	AIT EL GHAZI SOUFIANE
